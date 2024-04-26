@@ -1,0 +1,2 @@
+# Lista01_SW-I_2bim
+LISTA COM EXERCÍCIOS
